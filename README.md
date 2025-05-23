@@ -1,6 +1,6 @@
 # 奶云机场官网地址
 
-最新地址：[milkcloud.org](https://milkcloud.org/#/login?code=DwBbG7ZZ)
+最新地址：[milkcloud.org](www.naiyun.uk/#/login?code=DwBbG7ZZ)
 
 ## 奶云介绍
 
